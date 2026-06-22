@@ -1,4 +1,3 @@
-# Privacy Policy for Debias
 
 **Effective date:** June 22, 2026
 **Last updated:** June 22, 2026
